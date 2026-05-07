@@ -7,6 +7,7 @@
 👩‍💻 Useful resources - Contact our team here on the website in the discussion or send us a message at sinamuvaprimaryschool@outlook.com
 🍿 Fun facts - Our team brings their own food, there are free meals for students at school.
 🧙 Remember, you can email us at sinamuvaprimaryschool@outlook.com Website details https://github.com/Sinamuva-Primary/.github
+🆔 https://www.school-register.co.za/school/sinamuva-public-primary-school/
 -->
 Kind Regards,
 Sinamuva Primary School Team 
